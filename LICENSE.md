@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with new NFT Rarity Sniper for nft mint bot | simulation-mode & mint-detection. Featuring simulation-mode and mint-detection, it's the best choice
 
 
 
